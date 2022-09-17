@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Trappy2op
 - 👀 I’m interested in coding and gaming 
 - 🌱 I’m currently learning c 
-- 💞️ I’m looking to collaborate on ...
 - 📫 reach me at mayankraj874@gmail.com
